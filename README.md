@@ -1,0 +1,2 @@
+# F-Z110---GENEL-F-Z-K-II
+ FİZ110 - GENEL FİZİK II
